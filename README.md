@@ -1,6 +1,6 @@
 Mikior is
 
-The cutest, cutest thing in the world!!!❤❤❤❤❤❤❤
+The sweetest, sweetest child in the world!!!❤❤❤❤❤❤❤
 
 is Mikior
 
